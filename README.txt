@@ -1,0 +1,1 @@
+please run the program and enter growtopia. Also the activation code /ss is the code for entering the number you want /spin x. Have fun already. You have only 50 to make good use of it.
